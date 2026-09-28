@@ -1,0 +1,1 @@
+# Combat-Manager-Full-Version-Unlocked
